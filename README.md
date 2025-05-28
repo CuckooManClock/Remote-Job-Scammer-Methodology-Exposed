@@ -1,3 +1,5 @@
+![alt text](https://github.com/CuckooManClock/Remote-Job-Scammer-Methodology-Exposed/blob/main/Bait_and_switch_scam.webp?raw=true)
+
 # Remote-Job-Scammer-Methodology-Exposed
 the Methodology and TTPs of Remote Job/Pig Butchering scammers
 
