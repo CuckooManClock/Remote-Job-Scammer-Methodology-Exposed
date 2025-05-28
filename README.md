@@ -8,4 +8,4 @@ It starts with receiving a random vague, open ended text with something like "Ar
 # Stage 2 - Meeting Upper Management
 When they believe you are a "good fit" and you show a lot of interest they will redirect you to a platform where they cannot be traced IE Whatsapp, Signal, Telegram, any encrypted messenger and why they will do this would be so that the police and federal bureau cannot trace what they are about to pull on you. They will then pull whatever they are going to pull on the platform.
 # Stage 3 - The Endgame
-They scam you and ghost you, the end.
+They scam you, ghost you and steal your SIN the end.
